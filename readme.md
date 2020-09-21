@@ -7,5 +7,5 @@ Remove duplicate<br/>
 Not use thread [hackertarget api will down if use thread]<br/>
 Buy me a coffe<br/>
 Donate :<br/>
-BTC : 1MXUNYd5yYxWc4532U3GGLYcyD5UumfjvF<br/>
-PM  : U17860020<br/>
+BTC : 3Avek8froL5sdAmzPUTDNhhpkKe21CscKP<br/>
+PM  : U18840344<br/>
